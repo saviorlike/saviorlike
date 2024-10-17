@@ -23,7 +23,7 @@
 <p align="center">
 ageₗₑₛₛ　　( legally a minor )   <img src="https://i.ibb.co/NpRNfBF/68747470733a2f2f36342e6d656469612e74756d626c722e63-2.gif" alt="Bleeding Heart Icon"/>   it  ╱  fragi  ╱  brui   ❞
 <br>
-<img src="https://i.ibb.co/GpxL4zn/68747470733a2f2f36342e6d656469612e74756d626c722e63-3.gif" alt="Blood Icon"/>  ⁺  nonhuman ..   canine ᵃⁿᵈ doll　　┈　　otherkin/transspecies/etc
+<img src="https://i.ibb.co/GpxL4zn/68747470733a2f2f36342e6d656469612e74756d626c722e63-3.gif" alt="Blood Icon"/>  ⁺  nonhuman ..   canine ᵃⁿᵈ doll　　┈　　pluralflux paligenic system
 <br>
 <a href="https://thetvdb.com/series/psikhoniashki/people/69084025"><img src="https://i.ibb.co/0CwhHdQ/New-Project-2024-10-16-T224634-625.png" alt="01"/></a>  <a href="https://dark-deception-game.fandom.com/wiki/Reaper_Nurses"><img src="https://i.ibb.co/7zmVG3C/New-Project-2024-10-16-T224640-155.png" alt="02"/></a>  <a href="https://genshin-impact.fandom.com/wiki/Sigewinne"><img src="https://i.ibb.co/nPyLvZF/New-Project-2024-10-16-T224645-489.png" alt="03"/></a>  <a href="https://dandys-world-robloxhorror.fandom.com/wiki/Astro"><img src="https://i.ibb.co/6nMkxSh/New-Project-2024-10-16-T224651-244.png" alt="04"/></a> 　<a href="https://honkai-star-rail.fandom.com/wiki/Huohuo"><img src="https://i.ibb.co/kgLv5PJ/New-Project-2024-10-16-T224656-393.png" alt="05"/></a>  　◡◡   <a href="https://copinglink.carrd.co/#page01"><img src="https://i.ibb.co/VM901Pw/New-Project-2024-10-16-T225524-228.png" alt="copinglinks"/></a>  as  of  oct  '24
 <br>
