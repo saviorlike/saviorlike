@@ -9,7 +9,7 @@
 </div>
 </p>
 <div align="center">
-    <img alt="Static Badge" src="https://img.shields.io/badge/Pronouns-CC-5c5c5c?style=plastic&labelColor=5c5c5c&color=981310&link=https%3A%2F%2Fpronouns.cc%2F%40savior">
+    <a href="https://pronouns.cc/savior"><img src="https://img.shields.io/badge/Pronouns-CC-5c5c5c?style=plastic&labelColor=5c5c5c&color=981310" alt="Static Badge"></a>
   ⠀ <img src="https://komarev.com/ghpvc/?username=saviorism&label=+Profile+Visits+🥀+&style=plastic&color=980400" alt="Visitor Badge">
 </div>
 <p align="center">
