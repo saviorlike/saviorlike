@@ -1,6 +1,12 @@
-<p align="center">
-  <img id="mainElement" src="https://64.media.tumblr.com/b5e3a533e84f5a3289c1d099e8e75a11/b3fa508b34dfc206-d2/s1280x1920/c97cf0ed1bed4186c4afb19d3f55d20556a8a4e8.pnj" alt="banner">
+<div align="center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ephesis&size=45&duration=2000&color=AE776D&center=true&vCenter=true&width=500&lines=Take+me+down;A+little+bit+harder+now;Down+to+the+dance+floor;A+little+bit+harder+now;Love+me+like+you+mean+it;A+little+bit+harder+now;Love+me+up+and+down;A+little+bit+harder+now;+" alt="Typing SVG" /></a>
+  
+</div>
+  <a href="https://ibb.co/FwM18Pm"><img src="https://i.ibb.co/85pwPhN/image.png" alt="image" border="0"></a>
 </p>
+<div align="center">
+    <img src="https://komarev.com/ghpvc/?username=saviorism&label=+Star+Guests+🥀+&style=plastic&color=980400" alt="Visitor Badge">
+</div>
 <p align="center">
   a
 </p>
