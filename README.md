@@ -17,11 +17,11 @@
     <a href="https://saviorlike.straw.page/" style="margin-right;"><img src="https://img.shields.io/badge/Straw-Page-5c5c5c?style=plastic&labelColor=5c5c5c&color=981310" alt="Straw Page Link Badge"></a>
 </div>
 <h3 align="center" style="color:#a5918d;">
-  <img src="https://i.ibb.co/ZKh3CKt/68747470733a2f2f36342e6d656469612e74756d626c722e63.gif" alt="Wing Icon"/>⠀⠀savior ⠀⠀ₒᵣ ⠀⠀ solitude⠀⠀<img src="https://i.ibb.co/SN0KnwJ/68747470733a2f2f36342e6d656469612e74756d626c722e63-1.gif" alt="Wing Icon"/>
+  <img src="https://i.ibb.co/ZKh3CKt/68747470733a2f2f36342e6d656469612e74756d626c722e63.gif" alt="Wing Icon"/>⠀⠀nyulita ⠀⠀ₒᵣ ⠀⠀ savior⠀⠀<img src="https://i.ibb.co/SN0KnwJ/68747470733a2f2f36342e6d656469612e74756d626c722e63-1.gif" alt="Wing Icon"/>
 </h3>
 
 <p align="center">
-ageₗₑₛₛ　　( legally a minor )   <img src="https://i.ibb.co/NpRNfBF/68747470733a2f2f36342e6d656469612e74756d626c722e63-2.gif" alt="Bleeding Heart Icon"/>   it  ╱  fragi  ╱  brui   ❞
+ageₗₑₛₛ　　( legally a minor )   <img src="https://i.ibb.co/NpRNfBF/68747470733a2f2f36342e6d656469612e74756d626c722e63-2.gif" alt="Bleeding Heart Icon"/>   it  ╱  kyu  ╱  soe   ❞
 <br>
 <img src="https://i.ibb.co/GpxL4zn/68747470733a2f2f36342e6d656469612e74756d626c722e63-3.gif" alt="Blood Icon"/>  ⁺  nonhuman ..   canine ᵃⁿᵈ doll　　┈　　pluralflux paligenic system
 <br>
