@@ -1,35 +1,31 @@
 <div align="center">
-  <a href="https://open.spotify.com/track/5td7LYTivVH0MXXwin8QvE?si=505d29e6e10349d8"><img src="https://readme-typing-svg.demolab.com?font=Ephesis&size=45&duration=2000&color=AE776D&center=true&vCenter=true&width=500&lines=Take+me+down;A+little+bit+harder+now;Down+to+the+dance+floor;A+little+bit+harder+now;Love+me+like+you+mean+it;A+little+bit+harder+now;Love+me+up+and+down;A+little+bit+harder+now" alt="Typing SVG" /></a>
+<img src="https://64.media.tumblr.com/96c5354444864a0c36f98bc3eeb520f6/e3c1f564922c100e-19/s2048x3072/686376daaf4b2cbec9a823a6bffc186c191525cc.pnj" alt="top divider"/>
+<p>　</p>
+  
+  <p><img src="https://i.ibb.co/pf5cQqB/image.png" alt="Github Icon"/>　 .　 com　 <i>)</i>　 saviorlike</p>
+  <p>❝ <a href="https://open.spotify.com/track/5td7LYTivVH0MXXwin8QvE?si=505d29e6e10349d8"><img src="https://readme-typing-svg.demolab.com?font=Gaegu&duration=5350&pause=200&color=F7F7F7&center=true&vCenter=true&width=435&height=20&lines=if+i+was+an+angel;id+be+begging+them+to+cut+the+wings+off+me;just+so+i+could+be+here+with+you%2C+darling;and+maybe+thats+crazy+of+me%2C+but+its+true" alt="lyrics" /></a> ❞</p>
   
 </div>
 <a href="https://ibb.co/VvFXxKQ">
   <div align="center">
-    <img src="https://i.ibb.co/9qxRhMV/image.png" alt="image" width="650" height="200">
+    <img src="https://64.media.tumblr.com/8b09e5506783a021f6bf3c3626534230/e3c1f564922c100e-c1/s2048x3072/8777d22b0bd96b090f57381e2e26d78354dcfae5.pnj" alt="image" width="550" height="300">
 </a>
 </div>
-</p>
 <div align="center">
-    <a href="https://github.com/abhisheknaiidu/awesome-github-profile-readme?tab=readme-ov-file#tools" style="margin-right;"><img src="https://img.shields.io/badge/Readme-Tools-5c5c5c?style=plastic&labelColor=5c5c5c&color=981310" alt="Read Me Gidgets Link Badge"></a>
-    <a href="https://pronouns.cc/savior" style="margin-right;"><img src="https://img.shields.io/badge/Pronouns-CC-5c5c5c?style=plastic&labelColor=5c5c5c&color=981310" alt="Pronouns.CC Link Badge"></a>
-     <img src="https://komarev.com/ghpvc/?username=saviorism&label=+Profile+Visits+🥀+&style=plastic&color=980400" alt="Visitor Badge"> 
-    <a href="https://saviorlike.github.io/" style="margin-right;"><img src="https://img.shields.io/badge/Github-Site-5c5c5c?style=plastic&labelColor=5c5c5c&color=981310" alt="Github Site Link Badge"></a>
-    <a href="https://sntry.cc/paddedcell" style="margin-right;"><img src="https://img.shields.io/badge/Sntry-Site-5c5c5c?style=plastic&labelColor=5c5c5c&color=981310" alt="Sntry Site Link Badge"></a>
-    <a href="https://saviorlike.straw.page/" style="margin-right;"><img src="https://img.shields.io/badge/Straw-Page-5c5c5c?style=plastic&labelColor=5c5c5c&color=981310" alt="Straw Page Link Badge"></a>
-</div>
-<h3 align="center" style="color:#a5918d;">
-  <img src="https://i.ibb.co/ZKh3CKt/68747470733a2f2f36342e6d656469612e74756d626c722e63.gif" alt="Wing Icon"/>⠀⠀nyulita ⠀⠀ₒᵣ ⠀⠀ savior⠀⠀<img src="https://i.ibb.co/SN0KnwJ/68747470733a2f2f36342e6d656469612e74756d626c722e63-1.gif" alt="Wing Icon"/>
-</h3>
-
-<p align="center">
-ageₗₑₛₛ　　( legally a minor )   <img src="https://i.ibb.co/NpRNfBF/68747470733a2f2f36342e6d656469612e74756d626c722e63-2.gif" alt="Bleeding Heart Icon"/>   it  ╱  kyu  ╱  soe   ❞
-<br>
-<img src="https://i.ibb.co/GpxL4zn/68747470733a2f2f36342e6d656469612e74756d626c722e63-3.gif" alt="Blood Icon"/>  ⁺  nonhuman ..   canine ᵃⁿᵈ doll　　┈　　pluralflux paligenic system
-<br>
-<a href="https://thetvdb.com/series/psikhoniashki/people/69084025"><img src="https://i.ibb.co/0CwhHdQ/New-Project-2024-10-16-T224634-625.png" alt="01"/></a>  <a href="https://dark-deception-game.fandom.com/wiki/Reaper_Nurses"><img src="https://i.ibb.co/7zmVG3C/New-Project-2024-10-16-T224640-155.png" alt="02"/></a>  <a href="https://genshin-impact.fandom.com/wiki/Sigewinne"><img src="https://i.ibb.co/nPyLvZF/New-Project-2024-10-16-T224645-489.png" alt="03"/></a>  <a href="https://dandys-world-robloxhorror.fandom.com/wiki/Astro"><img src="https://i.ibb.co/6nMkxSh/New-Project-2024-10-16-T224651-244.png" alt="04"/></a> 　<a href="https://honkai-star-rail.fandom.com/wiki/Huohuo"><img src="https://i.ibb.co/kgLv5PJ/New-Project-2024-10-16-T224656-393.png" alt="05"/></a>  　◡◡   <a href="https://copinglink.carrd.co/#page01"><img src="https://i.ibb.co/VM901Pw/New-Project-2024-10-16-T225524-228.png" alt="copinglinks"/></a>  as  of  oct  '24
-<br>
-<img src="https://i.ibb.co/zHCC679/68747470733a2f2f36342e6d656469612e74756d626c722e63-4.gif" alt="Bloody Knife Icon"/>　　┈ 　sfw petre/agere　 ₊  audhd bpd szpd ptsd  <a href="https://new.lgbtqia.wiki/wiki/Non-Binary"><img src="https://i.ibb.co/0cKksxD/New-Project-2024-10-16-T221521-124.png" alt="Nonbinary Flag"/></a> <a href="https://new.lgbtqia.wiki/wiki/Uranic#Sub_Terms:~:text=Contie-,Uraniflux,some%20form%20of%20attraction%20to%20women/women%2Daligned%20and%20feminine%20individuals.,-milky%20jirin%20aeris"><img src="https://i.ibb.co/HC2Wfv2/New-Project-2024-10-16-T221526-161.png" alt="Uraniflux Flag"/></a> <a href="https://new.lgbtqia.wiki/wiki/Anattractional_Spectrum"><img src="https://i.ibb.co/CJpYWg4/New-Project-2024-10-16-T221531-798.png" alt="Aspec Flag"/></a> <a href="https://new.lgbtqia.wiki/wiki/Ally#Ally_Types:~:text=ally%2Dflag%2Dcompendium-,Intersex%20Ally,An%20ally%20supportive%20of%20intersex%20individuals.,-ally%2Dflag%2Dcompendium"><img src="https://i.ibb.co/HK7xNVC/New-Project-2024-10-16-T221536-343.png" alt="Intersex Ally Flag"/></a>
+  <p>
+    <p><img src="https://i.ibb.co/bbDdSt0/9e736300fce1a604ec27dfabb24c4cb670d68652.gif" width="20" height="auto" alt="wing favicon"/>　⠀ ⏖　　<b><i>nyu</i>lita</b>　or　<b>savior</b>　　◦　　it⠀<i>)</i>⠀kyu⠀<i>)</i>⠀soe⠀<i>)</i>⠀shy⠀⠀ .⠀ .⠀ .
+      <br>
+      <img src="https://i.ibb.co/F6V6xxP/68747470733a2f2f36342e6d656469612e74756d626c722e63-5.gif" alt="blinkie"/>⠀　︵　　♱　⠀<b>age</b>less⠀ angelic⠀ canine⠀ doll　⏖⠀　<img src="https://i.ibb.co/9Zb9VYY/8ae2195a9deac25132a62a6d9f43bcf5c38eb850.gif" width="20" height="auto" alt="flower favicon"/>
+      <br>
+      𝜗𝜚　⠀<i>demi</i>plural⠀ <b>sys</b>tem　<img src="https://i.ibb.co/HGNTbpn/7fd251eb932617113ce989e92e43c5b47aa0c5d2.gif" height="20" width="auto alt="candle favicon"/>　audhd⠀ <b>bpd</b>⠀ ptsd⠀ szpd⠀ aspd<i>?</i>⠀　︵︵</p>
 </p>
 
-<p align="center">
-<img src="https://i.ibb.co/pf5cQqB/image.png" alt="Github Icon"/>⠀⠀   ⠀——————————          ⠀꒰⠀ ⠀ @saviorlike ⠀ ⠀꒱
+<p>
+  <img src="https://i.ibb.co/mchcSPC/New-Project-2025-01-21-T232738-098.png" height="auto" width="60" alt="columbina emoji"/>　　︵︵　　<img alt="link to strawpage" src="https://img.shields.io/badge/straw-page-%23fff6f9?style=plastic&labelColor=bbabae">　.　<img alt="link to readme tools" src="https://img.shields.io/badge/readme-tools-%23fff6f9?style=plastic&labelColor=bbabae">　.　<img src="https://komarev.com/ghpvc/?username=saviorlike&label=✉️+my+stalkers⠀+&base=2145&style=plastic&color=lightgrey" alt="vistor counter">
+
+
 </p>
+
+<p>　</p>
+<img src="https://64.media.tumblr.com/c83e8db5e3e70868ac7da71c727fb452/e3c1f564922c100e-37/s2048x3072/657f8732e15e145bb44eed08348e21a6d28d74a2.pnj" alt="bottom divider"/>
+<p align="center">
