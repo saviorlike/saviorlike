@@ -1,6 +1,4 @@
-<div align="center">
-<img src="https://64.media.tumblr.com/96c5354444864a0c36f98bc3eeb520f6/e3c1f564922c100e-19/s2048x3072/686376daaf4b2cbec9a823a6bffc186c191525cc.pnj" alt="top divider"/>
-<p>　</p>
+
   
   <p><img src="https://i.ibb.co/pf5cQqB/image.png" alt="Github Icon"/>　 .　 com　 <i>)</i>　 saviorlike</p>
   <p>❝ <a href="https://open.spotify.com/track/5td7LYTivVH0MXXwin8QvE?si=505d29e6e10349d8"><img src="https://readme-typing-svg.demolab.com?font=Gaegu&duration=5350&pause=200&color=F7F7F7&center=true&vCenter=true&width=435&height=20&lines=if+i+was+an+angel;id+be+begging+them+to+cut+the+wings+off+me;just+so+i+could+be+here+with+you%2C+darling;and+maybe+thats+crazy+of+me%2C+but+its+true" alt="lyrics" /></a> ❞</p>
@@ -25,7 +23,4 @@
 
 
 </p>
-
-<p>　</p>
-<img src="https://64.media.tumblr.com/c83e8db5e3e70868ac7da71c727fb452/e3c1f564922c100e-37/s2048x3072/657f8732e15e145bb44eed08348e21a6d28d74a2.pnj" alt="bottom divider"/>
 <p align="center">
