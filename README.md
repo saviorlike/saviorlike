@@ -2,7 +2,7 @@
   <div align="center">
 <p><img src="https://i.ibb.co/pf5cQqB/image.png" alt="Github Icon"/>　 .　 com　 <i>)</i>　 saviorlike
   <br>
-  ❝ <a href="https://open.spotify.com/track/5td7LYTivVH0MXXwin8QvE?si=505d29e6e10349d8"><img src="https://readme-typing-svg.demolab.com?font=Gaegu&duration=5350&pause=200&color=F7F7F7&center=true&vCenter=true&width=435&height=20&lines=if+i+was+an+angel;id+be+begging+them+to+cut+the+wings+off+me;just+so+i+could+be+here+with+you%2C+darling;and+maybe+thats+crazy+of+me%2C+but+its+true" alt="lyrics" /></a> ❞</p>
+  ❝ <a href="https://open.spotify.com/track/7EzQ2cDiGLTiJhzWkHKO7l?si=3e405892724b4428"><img src="https://readme-typing-svg.demolab.com?font=Gaegu&duration=5350&pause=200&color=F7F7F7&center=true&vCenter=true&width=435&height=20&lines=if+i+was+an+angel;id+be+begging+them+to+cut+the+wings+off+me;just+so+i+could+be+here+with+you%2C+darling;and+maybe+thats+crazy+of+me%2C+but+its+true" alt="lyrics" /></a> ❞</p>
   </div>
   
 </div>
