@@ -31,21 +31,6 @@
 <p>
 <div>
 <p>
-  <h6><i>psst... fatui harbingers; irls, kins, introjs, linkers, etc... 
-    <br>itd be silly if we all came together n made a friendgroup...</i></h6>
-</p>
-  <a href="https://genshin-impact.fandom.com/wiki/Pierro"><img src="https://i.ibb.co/qMvFkyDn/image-2025-01-29-T222549-512.png" height="auto" width="30" alt="pierro symbol"/></a> 
-  <a href="https://genshin-impact.fandom.com/wiki/Capitano"><img src="https://i.ibb.co/TBk3zWk7/image-2025-01-29-T222532-536.png" height="auto" width="30" alt="capitano symbol"/></a> 
-  <a href="https://genshin-impact.fandom.com/wiki/Dottore"><img src="https://i.ibb.co/rRZ3Y0FJ/image-2025-01-29-T222554-838.png" height="auto" width="30" alt="dottore symbol"/></a> 
-  <a href="https://github.com/saviorlike"><img src="https://i.ibb.co/JWyDp3P7/image-2025-01-29-T222525-641.png" height="auto" width="30" alt="columbina symbol"/></a> 
-  <a href="https://genshin-impact.fandom.com/wiki/Arlecchino"><img src="https://i.ibb.co/TMCRF2Yr/image-2025-01-29-T222519-212.png" height="auto" width="30" alt="arlecchino symbol"/></a> 
-  <a href="https://genshin-impact.fandom.com/wiki/Pulcinella"><img src="https://i.ibb.co/1Jp8Pp9G/image-2025-01-29-T222443-288.png" height="auto" width="30" alt="pulcinella symbol"/></a> 
-  <a href="https://genshin-impact.fandom.com/wiki/Sandrone"><img src="https://i.ibb.co/LDGVYt2D/image-2025-01-29-T222537-882.png" height="auto" width="30" alt="sandrone symbol"/></a> 
-  <a href="https://genshin-impact.fandom.com/wiki/Pantalone"><img src="https://i.ibb.co/0pB0GR0J/image-2025-01-29-T222544-452.png" height="auto" width="30" alt="pantalone symbol"/></a> 
-  <a href="https://genshin-impact.fandom.com/wiki/Tartaglia"><img src="https://i.ibb.co/CptbHVdD/image-2025-01-29-T222420-703.png" height="auto" width="30" alt="tartaglia symbol"/></a>
-  <h6><i>that would be so funny wouldnt it... hahhaaa......</i></h6>
-<img src="https://i.ibb.co/KjnQkHZd/1251-cute2.gif" height="auto" width="40" alt="begging gif"/>
-</div>
-
-
+  <h6>current coding adventure⠀ ⠀->⠀ ⠀<a href="https://saviorstatus.netlify.app/"><img src="https://i.pinimg.com/736x/12/77/31/127731fee457e477f7cfa998d59d9030.jpg" height="10px" width="200px"></a>⠀ ⠀<-
+<br>todo: update this with a squeaky new theme &,,, yeah...</h6>
 </p>
