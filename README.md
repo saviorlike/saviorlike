@@ -5,7 +5,7 @@
   <br>
 
   <br>
-  lyrics　　lyrics　　lyrics　　lyrics　　lyrics　　lyrics　　lyrics　　lyrics　　lyrics
+  ꒰৯ ྐ✚ ₊　"<i>i　hate　sleeping　alone,</i>　and　i　know　u　hate　it　too . . ." ⠀ ♡︎ ༷݁   ꒱ྀ
   <br>
 
   </div>
@@ -36,7 +36,7 @@
 <br>mostly—<strong>boi</strong>gal　.feminine non femme.　cisgender <code>enby</code>　..apuab
   <br>chronologically & bodilly 18+ <strong> ｡･ﾟﾟ･｡ ｡･ﾟﾟ･｡</strong> <strong>nsfw</strong> minors do not interact ...
   <br>real life <code>ppuppy - inumimimi</code> <strong> ﾟ。</strong> men　<strong>･</strong> sfw (im)pure agedre & petre
-  <br><strong>nonsharing</strong>　yume - selfshipper <strong> ﾟ · . · ′</strong> raiko　&　"soulbound"　shifter
+  <br><strong>nonsharing</strong>　yume - selfshipper <strong> ﾟ · . · ′</strong> raiko　&　plurallflux~　shifter
   <br>agnostic apatheist <strong>hellenic poltheist</strong>　&&　dionysos, zeus, soteria devout
   <br>✙་།་ e ᚐׅ ︵ autistic adhd c-ptsd 𓎢𓎟ּ b<strong>pd</strong> schizo-spec osdd 、 ✿ ྀ ˚̣̣̣ ࿔
   <br>ྀི ֺּׅ⏦ ◞◟ ͜   ◟ <code>apathy, memory issues & 2ndary hallucinations</code>。  ݂۫𓎡 ݁ ྀ</p>
@@ -63,16 +63,15 @@
   ⠀
   <br>
   <p><img src="https://files.catbox.moe/u8yi5k.gif" alt="blinkie"/> ⠀ ⠀ ⠀ <img src="https://files.catbox.moe/8a4pah.gif" alt="text"/>
-  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-<br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-<br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-<br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt</p>
+  <br>꒰৯( [:e:] ᴗ͈) ۫ ◌ ྀིྀ◟ ͜ ׁ <strong>morally grey</strong>, inxp 𓈒♡︎♪ ᩧ golden pig。𓎟𓎟།†𓈒ֺּໃ
+<br>˚ ．𓉯ྀ⑅┊𓂅 anarchist post-left ⁺⸺ acab antifa ˚ִִ 𓏼 ͜͜✚ྀ⊹𓈒 ͜͝ | ͜͝ |
+  <br><code>pro-endogenic</code>, othergenic & xeno-origins...　　anti-syscourse
+  <br>neu-fiction　anti-censorship　　<strong>idgaf about ship discourse</strong>
+  <br>۶♡︎ৎྀ　𓂃༷  neu-anti psychiatry anti-colonism & anti-maga。 e𑇒
+      <br>/ᐠ > . x ̥マ    ݂۫     𓏼 ₊      ͜  ◞ ྀིྀ　　　　fandoms . . . ⤦
+<br>꒰ ྀིྀ ✚ ֪ ⏦ hannibal (nbc)　⸝⸝　postal (rws)　⸝⸝　<code>magical girls</code> ⑅ִ۫ ♡ ᩧ
+  <br><strong>dandys world</strong>,　pokemon,　mcc & lifestealsmp,　viva pinata
+  <br>| ͜͝ | ͜͝    𓉸ྀི⑅　˚̣̣̣ 　marvel,　pound puppies,　cod,　deathnote ˖  ᧔♡᧓་།་</p>
 </div>
 <br>
 
