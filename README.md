@@ -9,17 +9,12 @@
   <br>
 
   </div>
+  <br>
+  
 <!-- big image -->
 <div>
     <div align="center">
       <img src="https://files.catbox.moe/9nycl4.png" alt="blinkie"/>
-  </div>
-
-<!-- right shinies -->
-<div>
-    <div align="right">
-      <p><img src="https://files.catbox.moe/rjpk22.gif" alt="blinkie"/>  ⠀ ⠀⠀ ⠀ <img src="https://files.catbox.moe/muggcy.gif" alt="text"/>
-     ⠀ ⠀ ⠀ ⠀ ⠀</p>
   </div>
 
 <!-- right hand -->
@@ -33,6 +28,8 @@
   <br>
   ⠀
   <br>
+  <p><img src="https://files.catbox.moe/rjpk22.gif" alt="blinkie"/> ⠀ ⠀ ⠀ <img src="https://files.catbox.moe/muggcy.gif" alt="text"/>
+    <br>
 O name or name ee ee prn . prn . prn ee txt txt txt txt txt txt txt txt tx
 <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
 <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
@@ -42,8 +39,9 @@ O name or name ee ee prn . prn . prn ee txt txt txt txt txt txt txt txt tx
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
+  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt</p>
 </div>
+<br>
 <br>
 
 <!-- mid div -->
@@ -57,12 +55,14 @@ O name or name ee ee prn . prn . prn ee txt txt txt txt txt txt txt txt tx
   <img src="https://files.catbox.moe/16nn3q.png" width=330 align="left">
 </div>
 
+<br>
 <div>
 <div align="center">
 ⠀
   <br>
   ⠀
   <br>
+  <p><img src="https://files.catbox.moe/u8yi5k.gif" alt="blinkie"/> ⠀ ⠀ ⠀ <img src="https://files.catbox.moe/8a4pah.gif" alt="text"/>
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
 <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
 <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
@@ -72,13 +72,12 @@ O name or name ee ee prn . prn . prn ee txt txt txt txt txt txt txt txt tx
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
+  <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt</p>
 </div>
 <br>
-  
-<!-- left shinies -->
-<div>
-    <div align="left">
-      <p>     ⠀ ⠀ ⠀ ⠀ ⠀<img src="https://files.catbox.moe/u8yi5k.gif" alt="blinkie"/>  ⠀ ⠀ ⠀ <img src="https://files.catbox.moe/8a4pah.gif" alt="text"/>
-    </p>
+
+ <!-- last div -->
+ <div>
+  <div align="center">
+      <img src="https://files.catbox.moe/glk0m0.png" alt="blinkie"/>
   </div>
