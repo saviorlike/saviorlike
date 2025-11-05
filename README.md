@@ -1,36 +1,41 @@
-</div>
-  <div align="center">
-<p><img src="https://i.ibb.co/pf5cQqB/image.png" alt="Github Icon"/>　 .　 com　 <i>)</i>　 saviorlike
-  <br>
-  ❝ <a href="https://open.spotify.com/track/7EzQ2cDiGLTiJhzWkHKO7l?si=3e405892724b4428"><img src="https://readme-typing-svg.demolab.com?font=Gaegu&duration=5350&pause=200&color=F7F7F7&center=true&vCenter=true&width=435&height=20&lines=if+i+was+an+angel;id+be+begging+them+to+cut+the+wings+off+me;just+so+i+could+be+here+with+you%2C+darling;and+maybe+thats+crazy+of+me%2C+but+its+true" alt="lyrics" /></a> ❞</p>
-  </div>
-  
-</div>
-<a href="https://ibb.co/VvFXxKQ">
-  <div align="center">
-    <img src="https://64.media.tumblr.com/8b09e5506783a021f6bf3c3626534230/e3c1f564922c100e-c1/s2048x3072/8777d22b0bd96b090f57381e2e26d78354dcfae5.pnj" alt="image" width="550" height="300">
-</a>
-</div>
-<div align="center">
-  <p>
-    <p><img src="https://i.ibb.co/bbDdSt0/9e736300fce1a604ec27dfabb24c4cb670d68652.gif" width="20" height="auto" alt="wing favicon"/>　⠀ ⏖　　<b><i>nyu</i>lita</b>　or　<b>savior</b>　　◦　　it⠀<i>)</i>⠀kyu⠀<i>)</i>⠀soe⠀<i>)</i>⠀shy⠀⠀ .⠀ .⠀ .
-      <br>
-      <img src="https://i.ibb.co/F6V6xxP/68747470733a2f2f36342e6d656469612e74756d626c722e63-5.gif" alt="blinkie"/>⠀　︵　　♱　⠀<b>age</b>less⠀ angelic⠀ canine⠀ doll　⏖⠀　<img src="https://i.ibb.co/9Zb9VYY/8ae2195a9deac25132a62a6d9f43bcf5c38eb850.gif" width="20" height="auto" alt="flower favicon"/>
-      <br>
-      𝜗𝜚　⠀<i>demi</i>plural⠀ <b>sys</b>tem　<img src="https://i.ibb.co/HGNTbpn/7fd251eb932617113ce989e92e43c5b47aa0c5d2.gif" height="20" width="auto alt="candle favicon"/>　audhd⠀ <b>bpd</b>⠀ ptsd⠀ szpd⠀ aspd<i>?</i>⠀　︵︵</p>
-</p>
-
-<p>
-  <img src="https://i.ibb.co/mchcSPC/New-Project-2025-01-21-T232738-098.png" height="auto" width="60" alt="columbina emoji"/>　　︵︵　　<a href="https://saviorlike.straw.page/"><img alt="link to strawpage" src="https://img.shields.io/badge/straw-page-%23fff6f9?style=plastic&labelColor=bbabae"></a>　.　<a href="https://github.com/abhisheknaiidu/awesome-github-profile-readme?tab=readme-ov-file"><img alt="link to readme tools" src="https://img.shields.io/badge/readme-tools-%23fff6f9?style=plastic&labelColor=bbabae"></a>　.　<img src="https://komarev.com/ghpvc/?username=saviorlike&label=✉️+my+stalkers⠀+&base=2145&style=plastic&color=lightgrey" alt="vistor counter">
-
-</p>
-⠀
-<p>
-  </p>
-⠀
-<p>
 <div>
-<p>
-  <h6>current coding adventure⠀ ⠀->⠀ ⠀<a href="https://saviorstatus.netlify.app/"><img src="https://i.pinimg.com/736x/12/77/31/127731fee457e477f7cfa998d59d9030.jpg" height="10px" width="200px"></a>⠀ ⠀<-
-<br>todo: update this with a squeaky new theme &,,, yeah...</h6>
-</p>
+  <div align="center">
+      <p><img src="https://i.ibb.co/v6thJ2kJ/New-Project-2025-11-04-T173626-074.png" alt="blinkie"/>
+  <br>
+
+  <br>
+  lyrics　　lyrics　　lyrics　　lyrics　　lyrics　　lyrics　　lyrics　　lyrics　　lyrics
+  <br>
+
+  </div>
+
+<div>
+    <div align="center">
+      <img src="https://i.ibb.co/PsxhZssj/New-Project-2025-11-04-T174048-317.png" alt="blinkie"/>
+  </div>
+
+  <img src="https://i.ibb.co/3Y79hZ15/New-Project-2025-11-04-T182850-653.png" width=330 align="right">
+<div align="center">
+</div>
+
+<div align="center">
+
+O name or name ee <img src="https://i.ibb.co/jZsgmK3J/New-Project-2025-11-04-T175119-936.png" alt="blinkie" width="50px" height="50px"/> <img src="https://i.ibb.co/TBz08L2d/New-Project-2025-11-04-T175401-840.png" alt="blinkie" width="50px" height="50px"/>
+<br>
+<br>ee prn . prn . prn ee
+<br>ee e e txt txt txt txt txt
+<br>txt txt txt txt txt e e ee
+<br>O tx txt txt txt txt txt
+<br>txt tx ee e e ee txt O
+<br>txt txt txt txt txt txt tx
+<br>txt O txt txt txt e e ee
+<br>ee e e txt txt txt txt txt
+<br>
+</div>
+
+<div>
+    <div align="center">
+      <img src="https://i.ibb.co/fzGVZP6d/tumblr-orwvu6-PI2u1v4x3bwo1-640-2.webp" alt="blinkie"/>
+  </div>
+
+  
