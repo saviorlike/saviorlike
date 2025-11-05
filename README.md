@@ -30,15 +30,15 @@
   <br>
   <p><img src="https://files.catbox.moe/rjpk22.gif" alt="blinkie"/> ⠀ ⠀ ⠀ <img src="https://files.catbox.moe/muggcy.gif" alt="text"/>
     <br>
-𐔌͡ 　 ◟　 <strong>𝓌ankou,　𝓌anwan</strong>,　 𝓂aru,　　or　𝒸hibi 𓈒 　e♡︎
+𐔌͡ 　 ◟　 <strong>𝓌ankou,　𝓌anwan</strong>,　 𝓂aru,　　or　𝒸hibi 𓈒 　<img src="https://files.catbox.moe/yiyn17.gif" alt="pixel" width="20px" height="20px"/>♡︎
 <br>𓏵　˖  .　 it 　ﾉ　 soft 　ﾉ　 !!! 　ﾉ　 he 　ﾉ　 shii 　ﾉ　 toy　︵︵ ྀི
-<br>𓊈e𓊉 𓈒 ུ    angel. <code>canid</code>, toy' nouns　 །ི✚୧　masc' neu, terms｡ ꒷꒦ ᩧ𓎟𓎡
+<br>𓊈<img src="https://files.catbox.moe/85vlr3.gif" alt="pixel" width="20px" height="20px"/>𓊉 𓈒 ུ    angel. <code>canid</code>, toy' nouns　 །ི✚୧　masc' neu, terms｡ ꒷꒦ ᩧ𓎟𓎡
 <br>mostly—<strong>boi</strong>gal　.feminine non femme.　cisgender <code>enby</code>　..apuab
   <br>chronologically & bodilly 18+ <strong> ｡･ﾟﾟ･｡ ｡･ﾟﾟ･｡</strong> <strong>nsfw</strong> minors do not interact ...
   <br>real life <code>ppuppy - inumimimi</code> <strong> ﾟ。</strong> men　<strong>･</strong> sfw (im)pure agedre & petre
   <br><strong>nonsharing</strong>　yume - selfshipper <strong> ﾟ · . · ′</strong> raiko　&　plurallflux~　shifter
   <br>agnostic apatheist <strong>hellenic poltheist</strong>　&&　dionysos, zeus, soteria devout
-  <br>✙་།་ e ᚐׅ ︵ autistic adhd c-ptsd 𓎢𓎟ּ b<strong>pd</strong> schizo-spec osdd 、 ✿ ྀ ˚̣̣̣ ࿔
+  <br>✙་།་ <img src="https://files.catbox.moe/o4ri0h.gif" alt="pixel" width="20px" height="20px"/> ᚐׅ ︵ autistic adhd c-ptsd 𓎢𓎟ּ b<strong>pd</strong> schizo-spec osdd 、 ✿ ྀ ˚̣̣̣ ࿔
   <br>ྀི ֺּׅ⏦ ◞◟ ͜   ◟ <code>apathy, memory issues & 2ndary hallucinations</code>。  ݂۫𓎡 ݁ ྀ</p>
 </div>
 <br>
