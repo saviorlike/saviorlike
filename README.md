@@ -11,16 +11,16 @@
 
 <div>
     <div align="center">
-      <img src="https://i.ibb.co/PsxhZssj/New-Project-2025-11-04-T174048-317.png" alt="blinkie"/>
+      <img src="https://files.catbox.moe/9nycl4.png" alt="blinkie"/>
   </div>
 
-  <img src="https://i.ibb.co/3Y79hZ15/New-Project-2025-11-04-T182850-653.png" width=330 align="right">
+  <img src="https://files.catbox.moe/8t81xr.png" width=330 align="right">
 <div align="center">
 </div>
 
 <div align="center">
 
-O name or name ee <img src="https://i.ibb.co/jZsgmK3J/New-Project-2025-11-04-T175119-936.png" alt="blinkie" width="50px" height="50px"/> <img src="https://i.ibb.co/TBz08L2d/New-Project-2025-11-04-T175401-840.png" alt="blinkie" width="50px" height="50px"/>
+O name or name ee <img src="https://files.catbox.moe/tc7nrv.png" alt="blinkie" width="50px" height="50px"/> <img src="https://files.catbox.moe/zoawwm.png" alt="blinkie" width="50px" height="50px"/>
 <br>
 <br>ee prn . prn . prn ee
 <br>ee e e txt txt txt txt txt
@@ -35,7 +35,7 @@ O name or name ee <img src="https://i.ibb.co/jZsgmK3J/New-Project-2025-11-04-T17
 
 <div>
     <div align="center">
-      <img src="https://i.ibb.co/fzGVZP6d/tumblr-orwvu6-PI2u1v4x3bwo1-640-2.webp" alt="blinkie"/>
+      <img src="https://files.catbox.moe/vjr0jr.webp" alt="blinkie"/>
   </div>
 
   
