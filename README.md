@@ -27,6 +27,7 @@
   <img src="https://files.catbox.moe/8t81xr.png" width=330 align="right">
 </div>
 
+<div>
 <div align="center">
 ⠀
   <br>
@@ -42,8 +43,8 @@ O name or name ee ee prn . prn . prn ee txt txt txt txt txt txt txt txt tx
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-<br>
 </div>
+<br>
 
 <!-- mid div -->
 <div>
@@ -56,6 +57,7 @@ O name or name ee ee prn . prn . prn ee txt txt txt txt txt txt txt txt tx
   <img src="https://files.catbox.moe/16nn3q.png" width=330 align="left">
 </div>
 
+<div>
 <div align="center">
 ⠀
   <br>
@@ -71,11 +73,10 @@ O name or name ee ee prn . prn . prn ee txt txt txt txt txt txt txt txt tx
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-<br>
 </div>
-
-<!-- left shinies -->
 <br>
+  
+<!-- left shinies -->
 <div>
     <div align="left">
       <p>     ⠀ ⠀ ⠀ ⠀ ⠀<img src="https://files.catbox.moe/u8yi5k.gif" alt="blinkie"/>  ⠀ ⠀ ⠀ <img src="https://files.catbox.moe/8a4pah.gif" alt="text"/>
