@@ -30,9 +30,9 @@
   <br>
   <p><img src="https://files.catbox.moe/rjpk22.gif" alt="blinkie"/> ⠀ ⠀ ⠀ <img src="https://files.catbox.moe/muggcy.gif" alt="text"/>
     <br>
-O name or name ee ee prn . prn . prn ee txt txt txt txt txt txt txt txt tx
-<br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
-<br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
+𐔌͡ 　 ◟　 𝓃ame,　𝓃ame,　 𝓃ame,　　or　𝓃ame 𓈒 　e♡︎
+<br>𓏵　˖  .　 it 　ﾉ　 soft 　ﾉ　 !!! 　ﾉ　 he 　ﾉ　 shii 　ﾉ　 toy　︵︵ ྀི
+<br>𓊈e𓊉 𓈒 ུ    angel canid, toy' nouns　 །ི✚୧　masc' neu, terms｡ ꒷꒦ ᩧ𓎟𓎡
 <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
   <br>txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt
